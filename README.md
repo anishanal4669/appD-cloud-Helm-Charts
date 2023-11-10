@@ -23,3 +23,11 @@ Your knack for approaching challenges with innovative solutions has been a stand
 Consistent Performance:
 
 Your consistent performance throughout the year has been a testament to your work ethic and commitment. Your reliability has been crucial in meeting project deadlines and maintaining a high standard of work.
+
+Cross-Functional Collaboration:
+
+While your technical contributions are exemplary, consider actively engaging in cross-functional collaboration. This will not only broaden your skill set but also strengthen the interdisciplinary synergy within the team.
+
+Encouraging Vocal Participation:
+
+While your written communication is strong, consider actively participating in team discussions verbally. Your perspectives are valuable, and vocalizing them will not only enhance team dynamics but also provide additional avenues for your ideas to be acknowledged.
